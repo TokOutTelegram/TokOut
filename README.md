@@ -1,9 +1,9 @@
-# TokOut - Number #1 TikTok ban app
+# TokOut - Number #1 TikTok Ban Tool
 Check out telegram for more info
 
 
 We work daily to keep our products updated, 99% success rate, with experience of 2 years on the field.
-We were running tiktok ban service and recently decided to release our tools in public
+We were running tiktok ban service and recently decided to release our tools in public, Grab your copy with 80% DISCOUNT, ONLY for the first 8 customers!!!!
 
 💡 Why Choose Us? 💡
 1. Countless people have used our service (check telegram)
