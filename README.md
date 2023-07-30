@@ -13,3 +13,7 @@ We were running tiktok ban service and recently decided to release our tools in 
 
 More info:
 https://t.me/tokout
+
+
+tags:
+checker,tiktok, tiktok-ban, tiktok-checker, tiktok-ban-tool,tiktok-ban-bot, tiktok-checker-bot, tiktok-account-ban, tiktok-account-checker-bot, tiktok-account-checker-tool
